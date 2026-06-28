@@ -1,4 +1,4 @@
-# 
+# Código abierto Adobe Premiere Pro preajustes para Mac OS | Inteligente Adobe Premiere Pro preajustes para PC Windows. Con animación de fotogramas clave y compresión sidechain — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
